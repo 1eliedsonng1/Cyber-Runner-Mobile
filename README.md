@@ -53,4 +53,4 @@ Este projeto pode ser utilizado para fins educacionais, demonstrativos ou comerc
 👤 Autor
 
 Eliedson NG
-🏢 NG Company
+🏢 NG Company - © 2026 NEXORIUM GROUP LLC. Todos os direitos reservados.
